@@ -1,1 +1,1 @@
-meki kuda laut ahh
+wiraaribima ganteng
